@@ -118,4 +118,12 @@ Pull requests are welcome. For major changes, please open an issue first to disc
 
 ## Outputs
 
+![Image](https://github.com/user-attachments/assets/bdfd7e13-04c4-4e67-943a-7cc5ad850c0e)
 
+![Image](https://github.com/user-attachments/assets/2e491aa8-7e2c-4c05-858f-e8f8886704d4)
+
+![Image](https://github.com/user-attachments/assets/5075692a-ec49-426c-a2cf-03cd88ce7fcb)
+
+![Image](https://github.com/user-attachments/assets/8f02e5d7-bc47-4842-b419-7688e49020f6)
+
+![Image](https://github.com/user-attachments/assets/c6e4d5ed-939c-4090-818d-763481ba3373)
